@@ -35,3 +35,5 @@ https://lnkd.in/fEe3NZA
 
 12. Road Segmentation
 https://lnkd.in/faVQcmm
+
+thanks Asif Bhat for the list! I'm into it
